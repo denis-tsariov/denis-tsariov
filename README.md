@@ -34,7 +34,7 @@ I'm currently diving deeper into:
 
 ## 📫 Let's Connect!
 Feel free to reach out or collaborate:
-- 🌐 [LinkedIn](https://www.linkedin.com/in/your-profile)
-- 📧 Email: [your-email@example.com]
+- 🌐 [LinkedIn](https://www.linkedin.com/in/denis-tsariov-878676254)
+- 📧 Email: [tsariov.den@gmail.com]
 
 Thanks for stopping by! 🚀
